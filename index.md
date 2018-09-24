@@ -20,4 +20,4 @@ Elias Bacarro | VP Sponsorship
 
 ## Opportunities
 
-Don't be afraid to get involved. We're always looking for eager members who want to help lead! Signup for a position here: https://www.goo.gl/forms/boQfrO1JmqywC39z1
+Don't be afraid to get involved. We're always looking for eager members who want to help lead! Signup for a position [here!](https://www.goo.gl/forms/boQfrO1JmqywC39z1)
