@@ -8,7 +8,7 @@ Name | Position
 Adam Khimji | Founder & President
 Sargam Saxena | VP Finance
 Jineel Patel | VP Events
-Aleeshia Carman | VP Communications
+VACANT | VP Communications
 Elias Bacarro | VP Sponsorship
 
 ## Events
